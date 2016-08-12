@@ -18,7 +18,7 @@ Application is simple to use, click on buttons to navigate through the activitie
 
 
 
-
+References/licensing
 Credit for images go to following:
 
 
