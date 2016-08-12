@@ -31,3 +31,5 @@ rainbow mika image
 
 http://www.pcgamer.com/ibuki-heading-to-street-fighter-v-heres-the-trailer/
 ibuki image
+
+*Note: Though i did get the images from these sources, all content is from the street fighter V which was created by Capcom
